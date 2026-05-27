@@ -5,7 +5,7 @@ cjlinehan5@icloud.com
 
 ## Privacy Policy
 
-[Link to your privacy policy here]
+We do not collect data 
 
 ## About
 
